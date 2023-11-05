@@ -72,3 +72,5 @@ Beberapa manuskrip Arab di Berlin, Istanbul, Tashkent, Kairo dan Paris berisi pe
 Dua karya berisi tentang pagi (Ma’rifat sa’at al-mashriq fī kull balad) dan determinasi azimut dari tinggi (Ma’rifat al-samt min qibal al-irtifā’).
 
 Dia juga menulis 2 buku tentang penggunaan dan perakitan astrolab. Ibnu al-Nadim dalam Kitab al-Fihrist (sebuah indeks dari bahasa Arab) juga menyebutkan Kitāb ar-Ruḵāma(t) (buku sundial) dan Kitab al-Tarikh (buku sejarah) tapi 2 yang terakhir disebut telah hilang.
+
+Sumber: https://id.wikipedia.org/wiki/Mu%E1%B8%A5ammad_bin_M%C5%ABs%C4%81_al-Khaw%C4%81rizm%C4%AB 
